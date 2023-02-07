@@ -1,0 +1,2 @@
+# life
+Life sucks
